@@ -1,1 +1,1 @@
-https://soran70085.github.io/(thisRP)/
+https://soran70085.github.io/B_Launcher/
